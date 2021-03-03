@@ -20,6 +20,7 @@ This page is dedicated to immortalize my *artworks* on the **internet** so I can
 2. Past
 3. Present
 
+![DaviSouza_3rdEye_PhotoRetouching2_2](https://user-images.githubusercontent.com/79935703/109863130-4487f500-7c2f-11eb-8381-dd45151e236f.jpg)
 
 
 [My Art](https://souzadavi1402.wixsite.com/website)
